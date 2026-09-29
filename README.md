@@ -1,1 +1,1 @@
-# ICT_Practice
+# ICT_Practice ICT means using technology to communicate, access information, and solve problems more efficiently. To me, it is an important tool for learning, innovation, and achieving my future goals in the field of technology.
